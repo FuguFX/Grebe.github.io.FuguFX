@@ -1,1 +1,1 @@
-# Grebe.github.io.FuguFX
+# FuguFXについてのページ
